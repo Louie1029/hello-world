@@ -1,2 +1,2 @@
 # hello-world
-This is sample.
+Travel. Music. Netflix. Hiking. Money.
